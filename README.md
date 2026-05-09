@@ -1,2 +1,3 @@
 # tiers-bedrock
 piefhie9wrbjhfwiozhfbjoeiuhsdzjbhuasCFHgvSJgv
+たまごがきた証
